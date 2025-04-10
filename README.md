@@ -19,13 +19,15 @@ Want to try Pictory and save money at the same time? Good news — there’s a w
 
 Whether you're testing the waters or ready to commit, this deal lets you explore what Pictory can do — without breaking the bank.
 
-### How To Claim:
+### How To Claim Pictory Discount?
 1. Click this link → **[Pictory Special Offer](https://pictory.ai?ref=lokenderkumar5)**
-2. Choose a plan or start your free trial
-3. Apply the coupon code `**LokenderKumar05**` at checkout if it’s not auto-applied
-4. Enjoy easier, faster, better video creation!
+2. Choose a plan or start your free trial.
+3. Apply the coupon code `**LokenderKumar05**` at checkout if it’s not auto-applied.
+![Pictory Coupon](images/Pictory%20coupon%20code.png)
+4. Enjoy easier, faster, better video creation.
 
 ## What is Pictory?
+![Pictory](images/Pictory.png)
 
 Pictory is an AI video creation tool that helps you make professional-looking videos without any editing experience. Whether you’re a content creator, digital marketer, coach, or small business owner, it’s built to save you time and make your videos look amazing.
 
@@ -108,7 +110,7 @@ With the **free trial + 20% discount**, you’ve got nothing to lose and a whole
 
 👉 Click below to get started and see what Pictory can do for your brand, channel, or business:
 
-🎁 **[Try Pictory with Discount →](https://pictory.ai?ref=lokenderkumar5)**
+🎁 **[Try Pictory With Discount →](https://pictory.ai?ref=lokenderkumar5)**
 
 
 
