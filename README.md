@@ -4,7 +4,7 @@ Making great videos used to be a pain — hours of editing, hiring pricey freela
 
 But in 2025, if you’re not using video content, you’re falling behind. Videos grab attention, boost engagement, and convert way better than most other formats. The only problem? Creating them still feels like a hassle for a lot of people.
 
-That’s where Pictory comes in. It’s an AI-powered video tool that turns your scripts, blog posts, or even Zoom recordings into scroll-stopping videos — in just a few minutes. And the best part? You can try it for free and even grab a sweet discount using our Pictory coupon code.
+That’s where Pictory comes in. It’s an AI-powered video tool that turns your scripts, blog posts, or even Zoom recordings into scroll-stopping videos in just a few minutes. And the best part? You can try it for free and even grab a discount using our Pictory coupon code.
 
 
 ## Pictory Coupon Code + Free Trial Details (2025)
