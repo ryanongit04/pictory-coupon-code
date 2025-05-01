@@ -1,4 +1,4 @@
-# Pictory Coupon Code (2025) – Get 20% OFF + Free Trial
+# Pictory Coupon Code (2025) – Get 20% OFF + 30 Day Free Trial
 
 Making great videos used to be a pain — hours of editing, hiring pricey freelancers, or trying to figure out complicated software. And let’s be honest, most of us don’t have the time (or patience) for that.
 
